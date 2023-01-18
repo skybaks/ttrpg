@@ -68,3 +68,6 @@ After the battle Brian creeps out of his room and approaches Vance, Lance, and B
 
 After learning that the black box is not in the helm, Vance, Brian, and Lance head back to the YUMA to regroup and gather their wits.
 
+
+__LANCE FEATS/CONDITIONS__
+* Can cut through doors for free
