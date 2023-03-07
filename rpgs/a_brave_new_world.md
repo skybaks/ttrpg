@@ -38,3 +38,5 @@ On a ship heading to the carribean.
 On a ship owned by the french navy. Sailing without flying a french flag, which is odd. Under the deck is sealed off and patrolled by multitude by guards. We have not seen any ships approach but according to the soldiers that is expected because we are on a huge warship.
 
 
+# session 1
+3/9/2023
